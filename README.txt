@@ -32,6 +32,7 @@ Dollywood, Kings Island, and Cedar Point.
 Eclipse trip (2024) - This trip revolved around the April 8, 2024 total solar eclipse. We spent
 time primarily in Oklahoma, Texas, and Missouri.
 
-Fifth big trip (2025) - The primary areas visited in this vacation are Zion, Bryce
-Canyon, Capitol Reef, Canyonlands, Arches, Mesa Verde, and Black Canyon of the Gunnison.
+Fifth big trip (2025) - The primary areas visited in this vacation are the Pacific Coast
+Highway, Zion, BryceCanyon, Capitol Reef, Canyonlands, Arches, Mesa Verde, and Black Canyon 
+of the Gunnison.
 
